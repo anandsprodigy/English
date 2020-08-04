@@ -1,1 +1,1 @@
-Simple English words
+Simple English words and ideams
